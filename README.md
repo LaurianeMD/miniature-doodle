@@ -1,2 +1,0 @@
-# miniature-doodle
-miniature-doodle
